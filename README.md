@@ -11,7 +11,7 @@
 
 - 📫 Como me puedes encontrar **gisela.granadosr@gmail.com**
 
-- ⚡ Fun fact **Soy buena para aprender idiomas y expresiones de otros páises.**
+- ⚡ Fun fact **Soy buena para aprender idiomas y expresiones de otros países.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
